@@ -1,5 +1,7 @@
 # My-Resume-and-details
 A Career Details of Sujata
+
+
 [SujataMishra Tester Developer 23.pdf](https://github.com/suju2011/Projects-Details/files/12545736/SujataMishra.Tester.Developer.23.pdf)
 
 [Sujata Projects by 2023.pdf](https://github.com/suju2011/Projects-Details/files/12545739/Sujata.Projects.by.2023.pdf)
