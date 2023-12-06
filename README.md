@@ -4,7 +4,8 @@ A Career Details of Sujata
 
 [SujataMishra Tester Developer 23.pdf](https://github.com/suju2011/Projects-Details/files/12545736/SujataMishra.Tester.Developer.23.pdf)
 
-[Sujata Projects by 2023.pdf](https://github.com/suju2011/Projects-Details/files/12545739/Sujata.Projects.by.2023.pdf)
+[Sujata Projects by 2023.pdf](https://github.com/suju2011/My-Resume-and-details/files/13588947/Sujata.Projects.by.2023.pdf)
+
 
 [Enheroes Experience Certificate 23-Sujata Mishra.pdf](https://github.com/suju2011/Projects-Details/files/12545775/Enheroes.Experience.Certificate.23-Sujata.Mishra.pdf)
 
